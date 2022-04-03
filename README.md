@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lmascre
+- 👀 I’m French, read english well, speak and write english not well ;)
+- 🌱 I’m currently learning in lowtech networking 
+- 💞️ I’m looking to collaborate on ...
+- 📫 sarkoleme@gmail.com
